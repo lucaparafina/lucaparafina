@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @lucaparafina
+- 👀 I’m interested in maths, programming and electronics
+- 📫 How to reach me: parafinaluca@gmail.com
